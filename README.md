@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ajrocks-123
+- 👀 I’m interested in playing games
+- 🌱 I’m currently learning sql,power bi and excel
+- ⚡ Fun fact: i am single
